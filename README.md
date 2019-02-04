@@ -1,0 +1,2 @@
+# Mrs.-India-2019-Beauty-Contest-Registration-Online
+Every woman has the right to get pampered, be Independent, relive her dreams and get empowered. Haut Monde Mrs. India Worldwide gives remarkable opportunity to all the married women based not only in India but abroad too. It's an international beauty pageant which has been transforming married women from last 8 Years and has been giving fabulous opportunities and avenues. So register now for the most classic platform and book the slot as soon as. Register now: https://www.mrsindiaworldwide.com/registration.php
